@@ -1,2 +1,0 @@
-# partygang.github.io
-partygang
